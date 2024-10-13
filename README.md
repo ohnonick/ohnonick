@@ -1,5 +1,5 @@
 # Hi, I’m Nick! 😸
-#### 🦕 @ohnonick | silly | student | he/they 🦕
+#### 🦕 @ohnonick 🦕
 ### **[PODCAST RECS]**
 Dungeons and Daddies *[ LISTENING NOW ]*  
 > *DND: People who don't know how to play learn how to by playing as dads from our world thrown into Faerun*
