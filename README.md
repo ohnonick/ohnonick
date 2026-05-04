@@ -1,4 +1,4 @@
-# Hi, I’m Nick! 😸
+# Hi, I’m Nicky! 😸
 #### 🦕 @ohnonick 🦕
 [itch.io](https://ohnonick.itch.io/)
 
